@@ -1,15 +1,23 @@
-my favorite joel clips
+![](https://i.postimg.cc/Kv3ZZrJf/image-2025-03-18-073713394.png) ![](https://i.postimg.cc/c4wN5HvF/image-2025-03-18-072736779.png) ![](https://i.postimg.cc/tgJt70bx/image-2025-03-18-071708022.png) ![](https://i.postimg.cc/sxYDJ8Vf/image-2025-03-18-071559092.png)
 
-https://github.com/user-attachments/assets/38b9a608-a94f-4dc7-9466-c661d0cb13ff
+☆ hi im ray but u can also call me austin
 
-warning loud
+☆ @brilliantdiamond is my partner (the merchandise is taken hands awf ladies!!LMAO)
 
-https://github.com/user-attachments/assets/96a1ffbf-69ee-4b18-b6b3-73198c9ffd2d
+☆ minor (15-17)
 
-https://github.com/user-attachments/assets/e083ba95-b6c1-4a30-b3d9-ca56dc1e8f66
+☆ im a ponytowner yep (if you couldnt guess)
+
+☆ i like to sit around and make skins lol
+
+☆ im a big pokemon fan and i like pokepastas
+
+☆ also a big pokevillains enjoyer (i love cyrus) and gen 4 is my favorite gen
+
+☆ pokemon fans and possibly marvel rivals fans interact pls
+
+![Image](https://github.com/user-attachments/assets/0d17f3d9-231f-4b60-a088-15e233bc76f7)
+
+bonus video
 
 https://github.com/user-attachments/assets/0de4ec78-e00c-4608-9c8d-56dcdf7b9aba
-
-https://github.com/user-attachments/assets/ab5a6fd6-ff79-4a14-8bc0-d2780c8e9a4e
-
-https://github.com/user-attachments/assets/508eb936-d8c6-4e1e-81fb-b2ee10924fc3
