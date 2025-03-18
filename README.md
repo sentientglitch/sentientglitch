@@ -2,7 +2,7 @@
 
 ☆ hi im ray but u can also call me austin
 
-☆ @brilliantdiamond is my partner (the merchandise is taken hands awf ladies!!LMAO)
+☆ @coincaserival is my partner whom i luv smsmsm <33 (the merchandise is taken hands awf ladies!!LMAO)
 
 ☆ minor (15-17)
 
