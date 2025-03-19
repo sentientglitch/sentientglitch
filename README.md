@@ -4,7 +4,7 @@
 
 ☆ @coincaserival is my partner whom i luv smsmsm <33 (the merchandise is taken hands awf ladies!!LMAO)
 
-☆ minor (15-17)
+☆ minor (16) - if ur over 18 you can interact if you want
 
 ☆ im a ponytowner yep (if you couldnt guess)
 
