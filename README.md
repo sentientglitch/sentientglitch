@@ -18,6 +18,8 @@
 
 ☆ also if youd like, check out and leave a message on my strawpage!! it has a ton more info on it lol
 
+![](https://i.postimg.cc/Vv35FH3y/image-2025-03-21-022752977.png)
+
 ![](https://github.com/user-attachments/assets/0d17f3d9-231f-4b60-a088-15e233bc76f7)
 
 bonus video
