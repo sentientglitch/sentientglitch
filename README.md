@@ -2,7 +2,7 @@
 
 ☆ hi im ray but u can also call me austin
 
-☆ @coincaserival is my partner whom i luv smsmsm <33 (the merchandise is taken hands awf ladies!!LMAO)
+☆ @coincaserival is my partner whom i luv smsmsm <33
 
 ☆ minor (16) - if ur over 18 you can interact if you want
 
