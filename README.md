@@ -6,8 +6,6 @@
 
 ☆ minor (16) - if ur over 18 you can interact if you want
 
-☆ im a ponytowner yep (if you couldnt guess)
-
 ☆ i like to sit around and make skins lol
 
 ☆ im a big pokemon fan and i like pokepastas
