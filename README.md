@@ -10,13 +10,13 @@
 
 ☆ im a big pokemon fan and i like pokepastas
 
-☆ also a big pokevillains enjoyer (i love cyrus) and gen 4 is my favorite gen
+☆ red (pokemon) selfshipper - nonsharing so doubles dni thank youu ^^
 
 ☆ pokemon fans and possibly marvel rivals fans interact pls
 
 ☆ also if youd like, check out and leave a message on my strawpage!! it has a ton more info on it lol
 
-![](https://i.postimg.cc/Vv35FH3y/image-2025-03-21-022752977.png)
+![](https://archives.bulbagarden.net/media/upload/9/9a/Spr_B2W2_Red.png) ![](https://i.postimg.cc/Vv35FH3y/image-2025-03-21-022752977.png)
 
 ![](https://github.com/user-attachments/assets/0d17f3d9-231f-4b60-a088-15e233bc76f7)
 
