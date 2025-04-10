@@ -12,7 +12,7 @@
 
 ☆ i like ethan/gold alot !!!!!!!
 
-☆ red (pokemon) selfshipper - nonsharing so doubles dni thank youu ^^
+☆ red (pokemon) selfshipper (idm canonxcanon btw)
 
 ☆ pokemon fans and possibly marvel rivals fans interact pls
 
