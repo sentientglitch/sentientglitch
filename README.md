@@ -8,7 +8,9 @@
 
 ☆ i like to sit around and make skins lol
 
-☆ im a big pokemon fan and i like pokepastas
+☆ im a big pokemon fan and i like pokepastas (snow on mt silver i love alot)
+
+☆ i like ethan/gold alot !!!!!!!
 
 ☆ red (pokemon) selfshipper - nonsharing so doubles dni thank youu ^^
 
