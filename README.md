@@ -4,7 +4,7 @@
 
 ☆ im a minor (16)
 
-☆ friends are free to c+h you dont need to ask ^^
+☆ friends are free to c+h you dont need to ask ^^ (if its in my pony name then everyone is free to)
 
 ☆ i have a partner and im a red (pokemon) selfshipper 
 
