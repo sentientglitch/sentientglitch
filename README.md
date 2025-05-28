@@ -1,3 +1,5 @@
+![](https://komarev.com/ghpvc/?username=sentientglitch)
+
 ☆ call me blake ray or austin idm whatever
 
 ☆ im usually afk unless im actively chatting
