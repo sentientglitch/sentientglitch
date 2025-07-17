@@ -14,4 +14,4 @@
 
 ![](https://img.pokemondb.net/sprites/black-white/anim/normal/wartortle.gif) ![](https://img.pokemondb.net/sprites/black-white/anim/normal/pikachu.gif) ![](https://archives.bulbagarden.net/media/upload/9/9a/Spr_B2W2_Red.png) ![](https://img.pokemondb.net/sprites/black-white/anim/normal/charizard.gif) ![](https://img.pokemondb.net/sprites/black-white/anim/shiny/feraligatr.gif)
 
-stamps i use are by my [best friend](https://github.com/snares-of-derecho), heres his [stamp rentry](https://rentry.co/penance-cant-absolve-your-sin)!!
+stamps i use are by my [best](https://github.com/mistpillarshady) [friend](https://github.com/snares-of-derecho), heres his [stamp rentry](https://rentry.co/penance-cant-absolve-your-sin)!!
