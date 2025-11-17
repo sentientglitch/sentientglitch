@@ -1,6 +1,6 @@
 ![](https://komarev.com/ghpvc/?username=sentientglitch&color=b51b3a&label=✨)
 
-☆ call me blake ray or austin idm whatever
+☆ call me blake , gold or ethan idm whatever
 
 ☆ im usually afk unless im actively chatting
 
