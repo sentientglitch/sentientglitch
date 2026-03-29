@@ -4,14 +4,12 @@
 
 🦈
 
- <img src="https://i.postimg.cc/G2nnv7sW-/image-2026-03-12-072941934.png" width="300" height="290" alt="jeff">
+ <img src="https://i.postimg.cc/VNW4SRSY/image-2026-03-29-130017823.png" width="500" height="490" alt="huh">
 
- 🦈
+--
 
 ♡ mar.09.2026 ♡
 
   ⠀[ata](https://dreadform.atabook.org)  ⠀⠀ ⠀ .  ⠀⠀ ⠀ [rentry](https://rentry.co/weepinghound)  ⠀⠀ ⠀ .  ⠀⠀ ⠀ [straw](https://jeffthegalacticshark.straw.page)
-
-![](https://img.pokemondb.net/sprites/black-white/anim/normal/wartortle.gif) ![](https://img.pokemondb.net/sprites/black-white/anim/normal/electivire.gif)
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=q0racsfnw7djk1orr25r8769o&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=true&bar_color=ffffff&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=q0racsfnw7djk1orr25r8769o&redirect=true)
