@@ -1,6 +1,6 @@
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=sentientglitch&color=3575db&label=🦈jefflings)
+![](https://komarev.com/ghpvc/?username=sentientglitch&color=3575db&label=🦈)
 
 🦈
 
