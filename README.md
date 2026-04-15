@@ -4,7 +4,7 @@
 
 🦈
 
- <img src="https://i.postimg.cc/VNW4SRSY/image-2026-03-29-130017823.png" width="500" height="490" alt="huh">
+![](https://i.postimg.cc/VNW4SRSY/image-2026-03-29-130017823.png)
 
 --
 
